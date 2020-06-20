@@ -24,3 +24,8 @@ Kreativität fliesst, Wissen fliesst, Erkenntnis fliesst.
 > Vielleicht so was wie: Läuft
 > ?
 > ;-)
+
+
+
+
+<img src="https://www.yoga-vidya.de/Bilder/Galerien/sarasvati.jpg"/> 
