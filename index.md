@@ -11,10 +11,16 @@ Kreativität fliesst, Wissen fliesst, Erkenntnis fliesst.
 * Frau von Brahma
 * Trägt reinweiße Saris
 * Reittier ist der Schwan, der Wasser von Milch unterscheiden kann
-* Hat 4 Arme. In jeder 
-** Veden
-** 2, um das Saiteninstrument Vina zu spielen
-** Mala oder Lotosblüte
+* Hat 4 Arme. In jeder Hand jedes Arms sind
+  * Veden
+  * 2, um das Saiteninstrument Vina zu spielen
+  * Mala oder Lotosblüte
 * Sitzt auf einer Lotosblüte
 * Sitzt meist an einer Quelle (der Schöpfung)
 
+
+
+> Ich weiß nicht, was Saraswati mal gesagt haben könnte. 
+> Vielleicht so was wie: Läuft
+> ?
+> ;-)
